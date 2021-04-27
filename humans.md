@@ -9,7 +9,7 @@
 
 ### Participants
 
-* 
+* Bea Costa Gomes - github: [@mooniean](https://github.com/mooniean/), twitter: [@mooniean](https://twitter.com/mooniean)
 * 
 * 
 * 
